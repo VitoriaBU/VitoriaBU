@@ -1,4 +1,4 @@
-###Boas vindas ao meu perfil 💙💙
+### Boas vindas ao meu perfil 💙💙
 
 Meu nome é VitóriaBU
 
@@ -8,7 +8,7 @@ Meu nome é VitóriaBU
 
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-###Você pode entrar em contato comigo 📫
+### Você pode entrar em contato comigo 📫
 
 sarahbuenoh25@gmail.com
 
